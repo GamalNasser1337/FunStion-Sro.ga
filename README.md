@@ -1,0 +1,2 @@
+# FunStion-Sro.ga
+optional
